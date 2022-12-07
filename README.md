@@ -1,1 +1,0 @@
-# Aspgrupp
